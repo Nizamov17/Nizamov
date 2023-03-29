@@ -1,2 +1,2 @@
 Nizamov Artur
-914 group
+914
